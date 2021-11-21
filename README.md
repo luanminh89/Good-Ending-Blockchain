@@ -1,2 +1,2 @@
 # Good-Ending-Blockchain
-Just for fun
+Just for fun!
